@@ -8,5 +8,5 @@
 
 
 
-![](https:/)/media1.tenor.com/m/BzBzACvJIs4AAAAC/trenbolone-acetate.gif
+![](https://media1.tenor.com/m/BzBzACvJIs4AAAAC/trenbolone-acetate.gif)
 
