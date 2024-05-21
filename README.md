@@ -1,6 +1,6 @@
 ### meu perfil
     Meu nome é Erick Garcia, tenho 16 anos
-    gosto de acdemia e injetar o veneninho 
+    gosto de acdemia e injetar o veneninho 👿
     
 
 
